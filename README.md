@@ -8,9 +8,9 @@
 
 ---
 
-购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://juzixp.top/)
+购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://shop.muooy.com/)
 
-购买共享账号地址：[【 点击进入购买】](https://juzixp.top/buy/21))
+小火箭APPLEID共享账号租借：[【 点击进入购买】](https://shop.muooy.com/buy/21))
 
 ### 📱 苹果外区账号共享（支持下载小火箭 / 圈X / Stash）
 
