@@ -1,4 +1,4 @@
-## 🌟2025年6月更新｜免费共享苹果美区/各区 Apple ID + 科学上网资源合集
+## 免费共享苹果美区/各区 Apple ID + 科学上网资源合集
 
 ### 🎁 免费资源汇总，一站式获取！
 
@@ -7,10 +7,12 @@
 同时附送高质量**免费节点订阅地址**，支持 Clash、Shadowrocket、小火箭、Stash、ClashX Pro 等多平台客户端，**每天自动更新**，稳定高速，轻松实现**科学上网、访问 ChatGPT、解锁外网内容**。
 
 ---
+#### 请加入我们的 **[Telegram群组](https://t.me/juzixpchat)** 获取最新 AppleID 苹果美区小火箭账号。
 
-购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://shop.muooy.com/)
+#### 购买独享账号（小火箭独享账号，苹果各国APPLE ID，等各类账号）[【点击进入】](https://shop.muooy.com/)
 
-小火箭APPLEID共享账号租借：[【 点击进入】](https://shop.muooy.com/buy/21))
+#### Shadowrocket小火箭美区 APPLEID 共享账号租借：[【 点击进入】](https://shop.muooy.com/buy/21)
+---
 
 ### 📱 苹果外区账号共享（支持下载小火箭 / 圈X / Stash）
 
