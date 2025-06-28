@@ -7,6 +7,8 @@
 同时附送高质量**免费节点订阅地址**，支持 Clash、Shadowrocket、小火箭、Stash、ClashX Pro 等多平台客户端，**每天自动更新**，稳定高速，轻松实现**科学上网、访问 ChatGPT、解锁外网内容**。
 
 ---
+[【小火箭共享账号每日更新】](https://docs.applexp.com/free-accounts/Shadowrocket)
+
 #### 请加入我们的 **[Telegram群组](https://t.me/juzixpchat)** 获取最新 AppleID 苹果美区小火箭账号。
 
 #### 购买独享账号（小火箭独享账号，苹果各国APPLE ID，等各类账号）[【点击进入】](https://shop.muooy.com/)
